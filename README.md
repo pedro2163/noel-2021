@@ -40,6 +40,8 @@ https://www.facebook.com/bieristeessodrummondville
 
 Si t'es Elie: je t'aide pas 💖
 
+non c'est une blague :P t'as le Boire Grand sur Fleury ;)
+
 ## La liste
 
 ---
@@ -91,7 +93,7 @@ peut-être des plus durs à trouver (introuvables à Montréal, Elie donne toi j
 
 ---
 
-J'avais d'autres idées sinon:
+J'avais d'autres idées sinon si jamais :P
 
 ### Des booster de Magic the Gathering
 
@@ -103,4 +105,22 @@ Les deux seuls qui m'intéresseraient sont, le [Draft de Commander Legends](http
 
 ---
 
-*À VENIR*
+## À Québec
+
+---
+
+https://www.facebook.com/laboutiquemythique/
+
+https://www.facebook.com/GodsArenaShop
+
+## À Drummondville
+
+---
+
+https://www.facebook.com/gamersspotdrummondville
+
+## À Montréal
+
+---
+
+Le Gamekeeper
