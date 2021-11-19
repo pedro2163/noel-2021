@@ -8,6 +8,8 @@ Bon c'est plus facile passer par ici je trouve ! J'ai aucune idée quoi demander
 
 ---
 
+Y a peut-être d'autres endroits ! J'ai fait une petite recherche mais y a sûrement d'autres magasins !
+
 ### Québec
 
 ---
@@ -105,6 +107,8 @@ Les deux seuls qui m'intéresseraient sont, le [Draft de Commander Legends](http
 
 ---
 
+Y a peut-être d'autres endroits ! J'ai fait une petite recherche mais y a sûrement d'autres magasins !
+
 ## À Québec
 
 ---
@@ -124,3 +128,9 @@ https://www.facebook.com/gamersspotdrummondville
 ---
 
 Le Gamekeeper
+
+## En ligne
+
+---
+
+Directement sur FaceToFace avec les liens: [Draft de Commander Legends](https://www.facetofacegames.com/commander-legends-draft-booster-pack/) et [Set de Modern Horizons 2](https://www.facetofacegames.com/modern-horizons-2-set-booster-pack/).
