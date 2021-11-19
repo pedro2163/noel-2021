@@ -1,23 +1,48 @@
-## Idées de cadeaux pour l'échange 😁
+# Idées de cadeaux pour l'échange 😁
 
 ---
 
-Bon c'est plus facile passer par ici je trouve !
+Bon c'est plus facile passer par ici je trouve ! J'ai aucune idée quoi demander ahhaha je vais pour quelque chose de simple, des bières de micro !
 
-J'ai aucune idée quoi demander ahhaha je vais pour quelque chose de simple, des bières de micro !
+## Où les trouver ? 
 
-Si vous êtes à Québec ces magasins sont dans le coin:
+---
+
+### Québec
+
+---
+
+Si t'es à Québec ces magasins sont dans le coin:
+
 https://www.facebook.com/Alimpact
+
 https://www.facebook.com/DepdelaRive/
+
 https://www.facebook.com/lemondedesbieres/
+
 https://www.facebook.com/ChalouBeauport
+
 https://www.facebook.com/LaBoiteaBiere
 
-Si vous êtes à Drummondville:
+### Drummondville
+
+---
+
+Si t'es à Drummondville:
+
 https://www.facebook.com/epicerie.lauziere
+
 https://www.facebook.com/bieristeessodrummondville
 
-Si vous êtes Elie: je t'aide pas 💖
+### Elie
+
+---
+
+Si t'es Elie: je t'aide pas 💖
+
+## La liste
+
+---
 
 Voici une petite liste :)
 
