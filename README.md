@@ -86,3 +86,21 @@ peut-être des plus durs à trouver (introuvables à Montréal, Elie donne toi j
   * Duplessis
 * Brasserie Kruhnen
   * Dragaica
+
+## Autres idées
+
+---
+
+J'avais d'autres idées sinon:
+
+### Des booster de Magic the Gathering
+
+---
+
+Les deux seuls qui m'intéresseraient sont, le [Draft de Commander Legends](https://www.facetofacegames.com/commander-legends-draft-booster-pack/) le [Set de Modern Horizons 2](https://www.facetofacegames.com/modern-horizons-2-set-booster-pack/).
+
+### Où les acheter ?
+
+---
+
+*À VENIR*
