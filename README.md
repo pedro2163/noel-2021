@@ -54,8 +54,13 @@ non c'est une blague :P t'as le Boire Grand sur Fleury ;)
 
 Voici une petite liste :)
 
-* Brasserie Simple Malt
-  * leurs bouteilles **Réserve**, n'importe laquelle des 3
+* Brasserie Auval
+  * si jamais tu trouves ça, prends n'importe quoi, mais c'est **SUPER** dur à trouver, je le mets si jamais 👼‍ !
+* Brasserie Robin
+  * n'importe quoi, tout est bon !
+* Brasserie À la Fût
+  * n'importe quelle **bouteille**, sauf leurs IPA
+    * par exemple, Rouge de Mékinac (et tous ses dérivés), Matawin, La Pie et le Coyloup, Fugitive (n'importe laquelle)
 * Brasserie La Barberie
   * n'importe quelle **bouteille**
     * par exemple, Ressac ou Meandre
@@ -71,19 +76,14 @@ Voici une petite liste :)
 * Brasserie Lion Bleu
   * n'importe quelle **bouteille**, sauf Émergence No1
     * par exemple, Brut Sure Aux Mûres, Brut Rosé, Courtepointe No4, Grisette Sauvage
-* Brasserie À la Fût
-  * n'importe quelle **bouteille**, sauf leurs IPA
-    * par exemple, Rouge de Mékinac (et tous ses dérivés), Matawin, La Pie et le Coyloup, Fugitive (n'importe laquelle)
-* Brasserie Robin
-  * n'importe quoi !
 * Brasserie LTM
   * Saison de Table
 * Brasserie Prosprecteur
   * Houblonio Arruda
   * TiramiRousse
   * n'importe lequel de leurs Alliage #
-* Brasserie Auval
-  * si jamais tu trouves ça, prends n'importe quoi !
+* Brasserie Simple Malt
+  * leurs bouteilles **Réserve**, n'importe laquelle des 3
 
 peut-être des plus durs à trouver (introuvables à Montréal, Elie donne toi juste pas la peine si c'est toi)
 * Brasserie Del Ducate
