@@ -2,15 +2,19 @@
 
 ---
 
+## Des bières de micro
+
+---
+
 Bon c'est plus facile passer par ici je trouve ! J'ai aucune idée quoi demander ahhaha je vais pour quelque chose de simple, des bières de micro !
 
-## Où les trouver ? 
+### Où les trouver ? 
 
 ---
 
 Y a peut-être d'autres endroits ! J'ai fait une petite recherche mais y a sûrement d'autres magasins !
 
-### Québec
+#### Québec
 
 ---
 
@@ -26,7 +30,7 @@ https://www.facebook.com/ChalouBeauport
 
 https://www.facebook.com/LaBoiteaBiere
 
-### Drummondville
+#### Drummondville
 
 ---
 
@@ -36,7 +40,7 @@ https://www.facebook.com/epicerie.lauziere
 
 https://www.facebook.com/bieristeessodrummondville
 
-### Elie
+#### Elie
 
 ---
 
@@ -44,7 +48,7 @@ Si t'es Elie: je t'aide pas 💖
 
 non c'est une blague :P t'as le Boire Grand sur Fleury ;)
 
-## La liste
+### La liste
 
 ---
 
@@ -91,25 +95,25 @@ peut-être des plus durs à trouver (introuvables à Montréal, Elie donne toi j
 * Brasserie Kruhnen
   * Dragaica
 
-## Autres idées
+### Autres idées
 
 ---
 
 J'avais d'autres idées sinon si jamais :P
 
-### Des booster de Magic the Gathering
+## Des booster de Magic the Gathering
 
 ---
 
 Les deux seuls qui m'intéresseraient sont, le [Draft de Commander Legends](https://www.facetofacegames.com/commander-legends-draft-booster-pack/) le [Set de Modern Horizons 2](https://www.facetofacegames.com/modern-horizons-2-set-booster-pack/).
 
-## Où les acheter ?
+### Où les acheter ?
 
 ---
 
 Y a peut-être d'autres endroits ! J'ai fait une petite recherche mais y a sûrement d'autres magasins !
 
-### À Québec
+#### À Québec
 
 ---
 
@@ -117,19 +121,19 @@ https://www.facebook.com/laboutiquemythique/
 
 https://www.facebook.com/GodsArenaShop
 
-### À Drummondville
+#### À Drummondville
 
 ---
 
 https://www.facebook.com/gamersspotdrummondville
 
-### À Montréal
+#### À Montréal
 
 ---
 
 Le Gamekeeper
 
-### En ligne
+#### En ligne
 
 ---
 
