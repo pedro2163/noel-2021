@@ -103,13 +103,13 @@ J'avais d'autres idées sinon si jamais :P
 
 Les deux seuls qui m'intéresseraient sont, le [Draft de Commander Legends](https://www.facetofacegames.com/commander-legends-draft-booster-pack/) le [Set de Modern Horizons 2](https://www.facetofacegames.com/modern-horizons-2-set-booster-pack/).
 
-### Où les acheter ?
+## Où les acheter ?
 
 ---
 
 Y a peut-être d'autres endroits ! J'ai fait une petite recherche mais y a sûrement d'autres magasins !
 
-## À Québec
+### À Québec
 
 ---
 
@@ -117,20 +117,26 @@ https://www.facebook.com/laboutiquemythique/
 
 https://www.facebook.com/GodsArenaShop
 
-## À Drummondville
+### À Drummondville
 
 ---
 
 https://www.facebook.com/gamersspotdrummondville
 
-## À Montréal
+### À Montréal
 
 ---
 
 Le Gamekeeper
 
-## En ligne
+### En ligne
 
 ---
 
 Directement sur FaceToFace avec les liens: [Draft de Commander Legends](https://www.facetofacegames.com/commander-legends-draft-booster-pack/) et [Set de Modern Horizons 2](https://www.facetofacegames.com/modern-horizons-2-set-booster-pack/).
+
+## Du Beurre d'arrachide fancy
+
+---
+
+Parce que le Kraft c'est pas bon !
